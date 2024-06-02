@@ -1,2 +1,2 @@
 # Pascalos
-Pascal Niyishoborabyose is a dedicated medium-voltage lineman based in Musanze, Rwanda.
+Pascal Niyishoborabyose is a dedicated medium-voltage lineman based in Musanze, Rwanda. He has been working as an Electrical Supervisor for 1 year and has been a lineman since 2019 until now at Rwanda Energy Group. Pascal is passionate about distribution networks and retail of electricity to end-users and customer services. In addition to this Electrical Supervisor and lineman responsibilities, Pascal volunteers as electrician maintenance in ES Gahunga, where I restored the current due to the different issues and replaced the old one. He holds an advanced diploma in Electrical and Electronic Engineering in Alternative Energy and National Advanced Certificate in Electricity
